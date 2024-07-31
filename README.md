@@ -1,2 +1,0 @@
-# CV - Daniel Campos López
-
